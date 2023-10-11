@@ -9,6 +9,8 @@ However, growing vegetables with someone is much easier than growing them alone.
 
 Supported languages: Russian, English
 
+https://vk.com/wall-7553243_65010
+
 ![bandicam 2023-10-11 23-38-17-248](https://github.com/Andredron/Garden_VN/assets/55322207/10fdf336-976a-42ce-8f21-cb5ef07c51d4) ![bandicam 2023-10-11 23-39-13-870](https://github.com/Andredron/Garden_VN/assets/55322207/d9158b02-b643-4de9-87d9-dc849571faa1)
 
 ![bandicam 2023-10-11 23-39-41-900](https://github.com/Andredron/Garden_VN/assets/55322207/d1bb4baa-6341-4ea2-9c77-92ef559b71b1) ![bandicam 2023-10-11 23-40-03-104](https://github.com/Andredron/Garden_VN/assets/55322207/618710e4-be95-4116-9e49-8c4c62400591)
